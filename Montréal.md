@@ -1,6 +1,9 @@
 # Montréal
 
 Montréal is a beautiful place in Canada that I plan to visit soon.
+
+Montréal is Canada’s cultural chameleon—a city that feels like a slice of Europe dropped into North America. Situated on an island in the St. Lawrence River, it is a bilingual metropolis where centuries-old stone facades melt effortlessly into glass downtown skyscrapers.
+
 ![Montreal Street View](https://images.unsplash.com/photo-1470181942237-78ce33fec141?q=80&w=870&auto=format&fit=crop)
 
 ## Sights to See & Things to Do
