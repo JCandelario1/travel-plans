@@ -7,7 +7,7 @@ Montréal is a beautiful place in Canada that I plan to visit soon.
 ### 1. Explore Vieux-Montréal (Old Montréal)
 Walking through the historic heart of the city feels like stepping back into 17th-century Europe. The narrow, historic paths are lined with beautiful stone buildings, boutique shops, and lively spots like Place Jacques-Cartier.
 
-![Old Montréal Street]([https://unsplash.com/photos/landscape-photography-of-skyscrapers-BG9oZ15a4Xkhttps://images.unsplash.com/photo-1546182990-dffeafbe841d?auto=format&fit=crop&w=800&q=80](https://images.unsplash.com/photo-1470181942237-78ce33fec141?q=80&w=870&auto=format&fit=crop&ixlib=rb-4.1.0&ixid=M3wxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8fA%3D%3D))
+![Montreal Skyline](https://images.unsplash.com/photo-1542354255-82e7561be927?auto=format&fit=crop&w=1200&q=80)
 
 ### 2. Marvel at the Notre-Dame Basilica
 This stunning Gothic Revival masterpiece features an intricate interior filled with deep blue hues, golden stars, and magnificent stained glass windows. Don't miss *AURA*, an immersive light and sound show that transforms the historic space at night.
