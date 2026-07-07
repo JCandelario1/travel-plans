@@ -14,7 +14,7 @@ What truly sets Montréal apart is its joie de vivre (joy of living). It is a ci
 ### 1. Explore Vieux-Montréal (Old Montréal)
 Walking through the historic heart of the city feels like stepping back into 17th-century Europe. The narrow, historic paths are lined with beautiful stone buildings, boutique shops, and lively spots like Place Jacques-Cartier.
 
-![Montreal Skyline](https://images.unsplash.com/photo-1542354255-82e7561be927?auto=format&fit=crop&w=1200&q=80)
+![Montreal Skyline at Dusk](https://images.unsplash.com/photo-1720676997179-fe1f069fa662?q=80&w=435&auto=format&fit=crop)
 
 ### 2. Marvel at the Notre-Dame Basilica
 This stunning Gothic Revival masterpiece features an intricate interior filled with deep blue hues, golden stars, and magnificent stained glass windows. Don't miss *AURA*, an immersive light and sound show that transforms the historic space at night.
