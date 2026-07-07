@@ -29,12 +29,12 @@ Designed by Frederick Law Olmsted (the architect behind New York's Central Park)
 ### 4. Discover the Montreal Botanical Garden
 Ranked as one of the finest botanical gardens in the world, this 190-acre oasis features impressive thematic greenhouses and stunning outdoor gardens, including the serene Chinese and Japanese gardens.
 
-![Montreal Botanical Garden](https://images.unsplash.com/photo-1629131669431-7b001a1c9779?auto=format&fit=crop&w=800&q=80)
+![Montreal Cityscape](https://plus.unsplash.com/premium_photo-1711984441585-f5600da0bed0?q=80&w=859&auto=format&fit=crop)
 
 ### 5. Get Lost in the Underground City (RÉSO)
 Spanning over 20 miles of connected tunnels, this subterranean network links shopping malls, subway stations, hotels, and office buildings. It is a fascinating engineering marvel and a warm refuge during frosty winters.
 
-![Downtown Montreal](https://images.unsplash.com/photo-1563816172-23c0bf11a141?auto=format&fit=crop&w=800&q=80)
+![Montreal Streets](https://images.unsplash.com/photo-1772032260329-c0cf9cdd41ad?q=80&w=870&auto=format&fit=crop)
 
 ---
 
@@ -45,7 +45,7 @@ Montréal is a powerhouse food city where traditional comfort foods share the st
 ### 6. Indulge in Classic Poutine
 You cannot visit Québec without trying its signature dish. Look for a classic version featuring fresh, squeaky cheese curds and piping hot brown gravy layered over crisp, hand-cut french fries. 
 
-![Classic Poutine](https://images.unsplash.com/photo-1588721798361-ad7f82798e4d?auto=format&fit=crop&w=800&q=80)
+![Montreal Skyline](https://plus.unsplash.com/premium_photo-1764358098564-69e69b646bdd?q=80&w=387&auto=format&fit=crop)
 
 ### 7. Grab Hot Montréal Bagels
 Unlike New York-style bagels, local bagels are smaller, denser, and sweeter. They are boiled in honey-infused water before being baked to perfection in a wood-fired oven. Grab them fresh from *St-Viateur Bagel* or *Fairmount Bagel*.
