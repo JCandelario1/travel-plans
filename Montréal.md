@@ -6,6 +6,8 @@ Montréal is Canada’s cultural chameleon—a city that feels like a slice of E
 
 ![Montreal Street View](https://images.unsplash.com/photo-1470181942237-78ce33fec141?q=80&w=870&auto=format&fit=crop)
 
+What truly sets Montréal apart is its joie de vivre (joy of living). It is a city that refuses to stay indoors, pivoting from massive summer street parties like the International Jazz Festival to vibrant winter art installations in the Quartier des Spectacles. Backed by a legendary food scene that ranges from greasy-spoon poutine and iconic smoked meat to avant-garde hidden bistros, Montréal manages to be simultaneously laid-back, historic, and fiercely modern.
+
 ## Sights to See & Things to Do
 
 ### 1. Explore Vieux-Montréal (Old Montréal)
