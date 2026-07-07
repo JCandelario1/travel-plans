@@ -19,12 +19,12 @@ Walking through the historic heart of the city feels like stepping back into 17t
 ### 2. Marvel at the Notre-Dame Basilica
 This stunning Gothic Revival masterpiece features an intricate interior filled with deep blue hues, golden stars, and magnificent stained glass windows. Don't miss *AURA*, an immersive light and sound show that transforms the historic space at night.
 
-![Notre-Dame Basilica](https://images.unsplash.com/photo-1572435555646-7ad1f7377287?auto=format&fit=crop&w=800&q=80)
+![Montreal Architecture](https://plus.unsplash.com/premium_photo-1697730291430-b2eabbd480f6?q=80&w=388&auto=format&fit=crop)
 
 ### 3. Hike Up Mont Royal
 Designed by Frederick Law Olmsted (the architect behind New York's Central Park), this massive urban green space offers the ultimate panoramic reward. Head to the Kondiaronk Belvedere lookout for an iconic view of the downtown skyscrapers against the St. Lawrence River.
 
-![Mont Royal City View](https://images.unsplash.com/photo-1519178113459-7b3c2203d6d0?auto=format&fit=crop&w=800&q=80)
+![Montreal Snow Scene](https://images.unsplash.com/photo-1671412622659-8c6b039aea48?q=80&w=1032&auto=format&fit=crop)
 
 ### 4. Discover the Montreal Botanical Garden
 Ranked as one of the finest botanical gardens in the world, this 190-acre oasis features impressive thematic greenhouses and stunning outdoor gardens, including the serene Chinese and Japanese gardens.
