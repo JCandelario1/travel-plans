@@ -50,7 +50,7 @@ You cannot visit Québec without trying its signature dish. Look for a classic v
 ### 7. Grab Hot Montréal Bagels
 Unlike New York-style bagels, local bagels are smaller, denser, and sweeter. They are boiled in honey-infused water before being baked to perfection in a wood-fired oven. Grab them fresh from *St-Viateur Bagel* or *Fairmount Bagel*.
 
-![Montreal-Style Bagels](https://images.unsplash.com/photo-1585478259715-876acc5be8eb?auto=format&fit=crop&w=800&q=80)
+![Montreal Landmark](https://images.unsplash.com/photo-1687175452217-e4f8e523b5b5?q=80&w=870&auto=format&fit=crop)
 
 ### 8. Try a Legendary Smoked Meat Sandwich
 A culinary staple introduced by Eastern European Jewish immigrants, this thinly sliced, spiced, and cured beef brisket is piled incredibly high on rye bread with yellow mustard. *Schwartz's Deli* is the ultimate historic landmark to try it.
