@@ -1,6 +1,7 @@
 # Montréal
 
 Montréal is a beautiful place in Canada that I plan to visit soon.
+![Montreal Street View](https://images.unsplash.com/photo-1470181942237-78ce33fec141?q=80&w=870&auto=format&fit=crop)
 
 ## Sights to See & Things to Do
 
