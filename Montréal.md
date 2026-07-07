@@ -5,6 +5,7 @@ Montréal is a beautiful place in Canada that I plan to visit soon.
 Montréal is Canada’s cultural chameleon—a city that feels like a slice of Europe dropped into North America. Situated on an island in the St. Lawrence River, it is a bilingual metropolis where centuries-old stone facades melt effortlessly into glass downtown skyscrapers.
 
 ![Montreal Street View](https://images.unsplash.com/photo-1470181942237-78ce33fec141?q=80&w=870&auto=format&fit=crop)
+![Montreal City View](https://images.unsplash.com/photo-1576375802189-2e96f687a03b?q=80&w=387&auto=format&fit=crop)
 
 What truly sets Montréal apart is its joie de vivre (joy of living). It is a city that refuses to stay indoors, pivoting from massive summer street parties like the International Jazz Festival to vibrant winter art installations in the Quartier des Spectacles. Backed by a legendary food scene that ranges from greasy-spoon poutine and iconic smoked meat to avant-garde hidden bistros, Montréal manages to be simultaneously laid-back, historic, and fiercely modern.
 
